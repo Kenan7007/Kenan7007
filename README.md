@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kenan7007
 - 👀 I’m  Skilled in social communication . Able to harmonize in record time . Quick
-learner . Committed to time . Speak 3 languages .
+learner . Committed to time . And I Speak 3 languages :)
 - 🌱 I’m currently learning more about coding
 - 📫 How to reach me .. email : seedkenan@gmail.com
 
